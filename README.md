@@ -4,8 +4,11 @@
 I used to smoke blanchers until five in the morning. The movie broke off when I was lying in the pipe. Now the cross is fucking me. I got a little sleep, but I had to get up in the morning because I have responsibilities. I have a baby. Some people say you can't drink when you have children, but that's not true. You can, you just have to get up in the morning. This is responsibility.
 
 ## Informacje  o mnie
+
 **» Email: flinek@flinek.ga** 
+
 **» Strona: https://flinek.ga/**
+
 **» API: http://api.flux.ct8.pl/ (zapewne zostanie przerobione**
  
 
